@@ -1,7 +1,7 @@
 # CrazyHobo/Jomnch osu! skins
 
 # [- CrazyHobo's Skin](https://mega.nz/file/zfgglSyb#UI0s1cqXr19rkE2qi9bJEL2xYIp2BwVds8KZIJ3j-Pg) 
-![](https://imgur.com/5ZFM2ps)
+![](https://osu.ppy.sh/ss/17041081/dde9)
 
 # [- Planets )](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
 ![](https://osu.ppy.sh/ss/16187051/4633)
