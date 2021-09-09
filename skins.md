@@ -1,16 +1,9 @@
-# RyuK super rad main skins compilation
+# CrazyHobo/Jomnch osu! skins
 
-# [HP Bar](https://i.imgur.com/dh79Bwo.png)
-![](https://i.imgur.com/dh79Bwo.png)
+# [- CrazyHobo's Skin](https://mega.nz/file/zfgglSyb#UI0s1cqXr19rkE2qi9bJEL2xYIp2BwVds8KZIJ3j-Pg) 
+![](https://imgur.com/5ZFM2ps)
 
-# If a link is down let @1214su know
-
-# Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
-
-# [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
-![](https://osu.ppy.sh/ss/16525543/bc8f)
-
-# [- colorbog(Woohoo Edition)](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
+# [- Planets )](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
 ![](https://osu.ppy.sh/ss/16187051/4633)
 
 # [bees](https://mizaru.s-ul.eu/TNinjFkw) 
